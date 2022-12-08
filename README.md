@@ -1,2 +1,2 @@
 # Welcome!
-If you have no idea what this is, its for all the things that may or already have been deleted. I *w*ill put things here that should be perserved. Funny if you preserve the preserve so i ever have to delete perserve then the 
+If you have no idea what this is, its for all the things that may or already have been deleted. I **w**ill put **c**ool things here that should be **p**er**s**erved and kept so it isn't lost to hi**s**tory**.** I could also make **t**his som**e** sort of **c**ool ultimate file storage thing w**h**ich would be pretty cool. You ca**n** always save these **o**n the **l**e epic wayback machine f**o**r insurance to **g**et real. **Y**ou should get used to how I speak lol
